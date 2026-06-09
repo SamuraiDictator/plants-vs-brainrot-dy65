@@ -1,4 +1,4 @@
-
+plants vs brainrots Script stealth is the best plants vs brainrots Script, featuring auto-upgrade and undetectable. Safe and powerful for all your
 
 
 
